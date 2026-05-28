@@ -1,2 +1,2 @@
-# Ceescath_20972
-I am an adult a very ambitious and hardworking female
+Egbogota Ebube|Virtual Assistant
+I am a Proactive Executive & Administrative Virtual Assistant helping leaders stay organized, efficient, and focused in fast-paced remote environments.
